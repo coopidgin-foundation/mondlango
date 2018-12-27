@@ -1,5 +1,8 @@
-Kial Mondlango?
-Verkita de Oscar Mifsud    tradukita de Qijiaqin
+#Kial Mondlango?
+
+Verkita de Oscar Mifsud
+
+Tradukita de Qijiaqin
 
 Une, la most grava problemo  en nuna mondo esin unito ay Unizo.
 Tendenso esan por esi un sistemo de mezuro, kurenso, ay tiel plu.
